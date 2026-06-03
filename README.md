@@ -1,0 +1,3 @@
+# Die allem Volk widerfahren wird
+
+Gnade mit euch und Friede von Gott, dem Vater, und von Jesus Christus, unserem Herrn! Ihr Lieben, Ich bin in diesem Jahr an einer Zeile des Weihnachtsevangeliums hängen geblieben. "Große Freude", verkündet der Engel den…
